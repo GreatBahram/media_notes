@@ -178,13 +178,54 @@
 
 ## Episode 20
 
-- That's it we are **out of the woods**! not being in the danger or difficulty anymore.
-- Don't cry out loud
-- What kind of discount do we get?
-- There is not reason to get **testy**; bad-tempered, irritated
-- You think, you can get out of this on a **technicality**.
-- Are you actually saying these words?
-- Excuse me, I'm sorry. I think you may be in our seats.
-- So what **were you gonna** tell us?
-- Good job, we couldn't have done this without you.
-- Oh, I lost track of everybody after high school.
+- Is it what it's like to be you?
+- Liked what she saw, huh?
+- While we're hovering around the subject ...
+- Since when do you care who I'm going out with?
+- Let's pick it up where we left off.
+- Since we're **getting off early** ...
+- I think, I kind of need to work on my stuff tonight ...
+- Yeah, that's pretty much what I had in mind!
+- She/He has got it all wrong.
+- Will you please <u>climb out of my butt</u>!
+- I was just caught up in the moment, that's all it was.
+
+## Episode 21
+
+- Whose idea it was to put ...
+- God knows, I've paid my dues.
+- What were you gonna tell us?
+- No, but let's come back to that later.
+-  Because I knew if I **told** you, you <u>would make</u> me to go ...
+
+## Episode 22
+
+- You were gonna have me hang up.
+- Hey, gosh, you look so familiar.
+- Does anyone mind if I save this?
+- Step away from the ...
+- What's going on? What's all this about L.A?
+- **So long**, Vic. Goodbye
+
+## Episode 23
+
+- I'm **sowing my wild oats**, you know?
+- You're guys are just the worst hiders ever.
+- <u>I'm gonna have to</u> call you back later.
+- I guess it's worth a try.
+- You'll get through this, you'll be fine.
+- We never said this was exclusive.
+  - Neither did we.
+
+## Episode 24
+
+- It's a little crowded, could you **skooch**?
+- I come to play, I hope you do too.
+
+## Episode 25
+
+- Excuse me, my **fashion-impaired friends** ...
+- I **lost track of** everybody after high school.
+- How did you sleep?
+  - **Like a log**!
+- You can see the moonlight **bouncing off** her head.
